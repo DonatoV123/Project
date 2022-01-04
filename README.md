@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DonatoV123
 - 👀 I’m interested in video games
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning how to code
 - 📫 How to reach me, you cant...
